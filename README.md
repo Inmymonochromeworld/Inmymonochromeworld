@@ -1,4 +1,4 @@
-https://github.com/Inmymonochromeworld/Inmymonochromeworld/blob/a87950dd102cc917ffebcc0300f31caeb2735f65/trailer1.gif
+![4o9o4o](https://github.com/Inmymonochromeworld/Inmymonochromeworld/blob/a87950dd102cc917ffebcc0300f31caeb2735f65/trailer1.gif)
 _One day, after dinner, while my younger sister and I were lounging about in Mr. Gopher Wood’s yard, we spotted a fledgling Charmony Dove all on its own. That baby bird was tiny, it didn’t even have all of its feathers, and it couldn’t sing. When we found it, it was already on its last breath, having fallen into a shrub — probably abandoned by its parents. We decided to build a nest for it right there and then._
 
 _However, thinking back, that winter was unusually cold, with fierce winds at night in the yard, not to mention the many poisonous bugs and wild beasts in the vicinity... It was clear that if we left the fledgling in the yard, it stood no chance of surviving until spring. So, I suggested we take it inside, place it on the shelf by the window, and asked the adults to fashion a cage for it._
