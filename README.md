@@ -1,5 +1,3 @@
-# ────୨ ⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺ ৎ────
-
 ![4o9o4o](https://github.com/Inmymonochromeworld/Inmymonochromeworld/blob/a87950dd102cc917ffebcc0300f31caeb2735f65/trailer1.gif)
 
 _One day, after dinner, while my younger sister and I were lounging about in Mr. Gopher Wood’s yard, we spotted a fledgling Charmony Dove all on its own. That baby bird was tiny, it didn’t even have all of its feathers, and it couldn’t sing. When we found it, it was already on its last breath, having fallen into a shrub — probably abandoned by its parents. We decided to build a nest for it right there and then._
