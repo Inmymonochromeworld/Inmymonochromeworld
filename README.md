@@ -9,3 +9,6 @@ _We decided that when it regained its strength enough to spread its wings, we wo
 _Now, I pass the power of choice to you all. Faced with this situation, what choice would you make? Stick to the original plan, and build a nest with soft net where the Charmony Dove fell? Or build a cage for it, and feed it, giving it the utmost care from within the warmth of a home ?_
 
 **_I eagerly await your answer._**
+
+
+*_(architecht tries coding 4 the first time dies)_*
