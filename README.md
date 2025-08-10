@@ -11,4 +11,4 @@ _Now, I pass the power of choice to you all. Faced with this situation, what cho
 **_I eagerly await your answer._**
 
 
-*_(architecht tries coding 4 the first time dies)_*
+*_(architect tries coding 4 the first time dies)_*
