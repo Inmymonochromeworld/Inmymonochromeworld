@@ -1,14 +1,1 @@
-![4o9o4o](https://github.com/Inmymonochromeworld/Inmymonochromeworld/blob/b518cd06922a1364daf12f111bab05f5d341595d/trailer2.gif)
-
-_One day, after dinner, while my younger sister and I were lounging about in Mr. Gopher Wood’s yard, we spotted a fledgling Charmony Dove all on its own. That baby bird was tiny, it didn’t even have all of its feathers, and it couldn’t sing. When we found it, it was already on its last breath, having fallen into a shrub — probably abandoned by its parents. We decided to build a nest for it right there and then._
-
-_However, thinking back, that winter was unusually cold, with fierce winds at night in the yard, not to mention the many poisonous bugs and wild beasts in the vicinity... It was clear that if we left the fledgling in the yard, it stood no chance of surviving until spring. So, I suggested we take it inside, place it on the shelf by the window, and asked the adults to fashion a cage for it._
-
-_We decided that when it regained its strength enough to spread its wings, we would release it back into the wild. The tragic part — something that we’d never considered — was that this bird’s fate had already been determined long before this moment... Its destiny was determined by our momentary whim._
-
-_Now, I pass the power of choice to you all. Faced with this situation, what choice would you make? Stick to the original plan, and build a nest with soft net where the Charmony Dove fell? Or build a cage for it, and feed it, giving it the utmost care from within the warmth of a home ?_
-
-**_I eagerly await your answer._**
-
-
-*_(architect tries coding 4 the first time dies)_*
+![4o9o4o](https://github.com/Inmymonochromeworld/Inmymonochromeworld/blob/15aff28204e89e743fd4634a972b50edd195410e/cerces.gif)
