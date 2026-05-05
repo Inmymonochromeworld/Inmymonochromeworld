@@ -3,4 +3,3 @@
 
 
 *<p align="center">*[ata](https://dreammaster.atabook.org/?page=1)  ︶ ୨୧ ︶  [gunslol](https://guns.lol/seventhday)
-<p align="center"> chirp
