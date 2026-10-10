@@ -7,3 +7,5 @@
 <p align="center"> 
   
 ***Embrace new life***
+
+<p align="center"> <img width="400" height="400" src=(https://github.com/Inmymonochromeworld/pics/blob/7301796494d0049f135b39858b1411639069f7fa/Sticker_PPG_22_Castorice_02.webp)
