@@ -10,3 +10,4 @@
 
 <p align="center"> <img width="150" height="150" alt="[https://github.com/Inmymonochromeworld/pics/blob/7301796494d0049f135b39858b1411639069f7fa/Sticker_PPG_22_Castorice_02.webp]" src="https://github.com/Inmymonochromeworld/pics/blob/7301796494d0049f135b39858b1411639069f7fa/Sticker_PPG_22_Castorice_02.webp" />
 
+*<p align="center">*[۶ৎ](https://dreammaster.atabook.org/?page=1)
